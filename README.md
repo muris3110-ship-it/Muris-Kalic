@@ -18,8 +18,8 @@ _Negotiating high-value contracts and agreements with suppliers and partners, en
 _Upholding and enforcing strict compliance with Swiss building regulations, SIA norms, and health and safety (SUVA) standards across all project phases.
 
 
-emopoyment: Marti AG Zürich as Site Manager Project Manager
+Employment: Marti AG Zürich as Site Manager Project Manager
 
 
-edication: Engineer Construction Management, BSc in Architecture (Graz University of Technology Austria), Eur. Ing. (FEANI Brussels Belgium)
+Education: Engineer Construction Management, BSc in Architecture (Graz University of Technology Austria), Eur. Ing. (FEANI Brussels Belgium)
 
